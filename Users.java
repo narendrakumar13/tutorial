@@ -1,1 +1,2 @@
-Hi iam Narendra Kumar
+Iam Narendra Kumar
+I completed MBA
